@@ -34,7 +34,7 @@ Jika mengalami masalah atau memiliki pertanyaan, hubungi tim dukungan kami di:
 Email: support@ole777.com
 Live Chat: Tersedia di situs web kami.
 🌐 Lisensi
-Ole777 dioperasikan oleh ole777 dan dilisensikan oleh [Nama Badan Lisensi].
+Ole777 dioperasikan oleh ole777 dan dilisensikan oleh Resmi PAGCOR.
 
 🚫 Berjudi secara Bertanggung Jawab
 Ingatlah untuk selalu berjudi secara bertanggung jawab. Jika Anda atau orang lain mengalami masalah dengan judi, silahkan menghubungi Layanan Bantuan Judi.
@@ -43,7 +43,7 @@ Ingatlah untuk selalu berjudi secara bertanggung jawab. Jika Anda atau orang lai
 Informasi di dalam README ini hanya bersifat informatif. Silakan kunjungi Situs Resmi Ole777 untuk informasi yang lebih lengkap dan akurat.
 
 🔗 Tautan Cepat
-Website Resmi [https://bit.ly/45Oql9P](sportsbook)
+Website Resmi [https://bit.ly/45Oql9P](https://bit.ly/45Oql9P)
 Promosi
 Bantuan
 Kebijakan Privasi
